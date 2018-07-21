@@ -1,2 +1,6 @@
 # Hello-World
 Test Repository
+
+Chan Kong-sang, SBS,[1] MBE,[2] PMW[3] (陳港生; born 7 April 1954),[4] known professionally as Jackie Chan, is a Hong Kong martial artist, actor, film director, producer, stuntman, and singer. He is known for his acrobatic fighting style, comic timing, use of improvised weapons, and innovative stunts, which he typically performs himself, in the cinematic world. He has trained in wushu or kungfu and hapkido,[5][6] and has been acting since the 1960s, appearing in over 150 films.
+
+Chan is one of the most recognizable and influential cinematic personalities in the world, gaining a widespread following in both the Eastern and Western hemispheres, and has received stars on the Hong Kong Avenue of Stars, and the Hollywood Walk of Fame.[7][8] He has been referenced in various pop songs, cartoons, and video games. He is an operatically trained vocalist and is also a Cantopop and Mandopop star, having released a number of albums and sung many of the theme songs for the films in which he has starred. He is also a globally known philanthropist, and has been named as one of the top 10 most charitable celebrities by Forbes magazine.[9][10] In 2015, Forbes estimated his net worth to be $350 million, and as of 2016, he was the second highest paid actor in the world.[1
